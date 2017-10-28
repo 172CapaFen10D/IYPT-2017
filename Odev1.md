@@ -1,6 +1,6 @@
 10-D | Yusuf Sadi Öztopbaş | 439
 10-D | Muhammed Faruk Karataş | 387
-10-D | İbrahim Ünalam | 382 
+10-D | İbrahim Ünalan | 382 
 
 Parmak izleri 
 
